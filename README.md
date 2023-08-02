@@ -3,7 +3,8 @@
 - 🔭 I’m currently working on ReactJs project
 - 🌱 I’m currently learning Backend
 
-- ![image](https://github.com/mubinanusratullayeva/mubinanusratullayeva/assets/123224054/e0f40f98-0f54-4ff5-9179-2b0de1fd1543)
+-![image](https://github.com/mubinanusratullayeva/mubinanusratullayeva/assets/123224054/03893238-eadf-4ad6-bfeb-fc887500190f)
+
 
 
 <!--
