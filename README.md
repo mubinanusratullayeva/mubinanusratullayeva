@@ -5,6 +5,9 @@
 
 -![image](https://github.com/mubinanusratullayeva/mubinanusratullayeva/assets/123224054/03893238-eadf-4ad6-bfeb-fc887500190f)
 
+follow me: https://www.facebook.com/profile.php?id=61550518511906
+           https://twitter.com/MNusratull53436
+
 
 
 <!--
