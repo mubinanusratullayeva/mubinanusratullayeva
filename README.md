@@ -5,7 +5,10 @@
 
 -![image](https://github.com/mubinanusratullayeva/mubinanusratullayeva/assets/123224054/03893238-eadf-4ad6-bfeb-fc887500190f)
 
-                                                              ![image](https://github.com/mubinanusratullayeva/mubinanusratullayeva/assets/123224054/5ba26a46-10e2-4eea-b12a-6e0067da0a3e)
+  
+  
+  
+  ![image](https://github.com/mubinanusratullayeva/mubinanusratullayeva/assets/123224054/5ba26a46-10e2-4eea-b12a-6e0067da0a3e)
 
 
 follow me on facebook: https://www.facebook.com/profile.php?id=61550518511906
