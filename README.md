@@ -3,7 +3,7 @@
 - 🔭 I’m currently working on ReactJs project
 - 🌱 I’m currently learning Backend (Python)
 
-![image](https://github.com/mubinanusratullayeva/mubinanusratullayeva/assets/123224054/03893238-eadf-4ad6-bfeb-fc887500190f)
+https://th.bing.com/th/id/OIP.jWLd7P694Uopsa_irQUx8QHaEK?rs=1&pid=ImgDetMain
 
   
   
