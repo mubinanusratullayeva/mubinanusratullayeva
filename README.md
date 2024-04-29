@@ -1,11 +1,5 @@
 ### Hi there 👋
 
-- 🔭 I’m currently working on ReactJs project
-- 🌱 I’m currently learning Backend (Python)
-
-![image](https://github.com/mubinanusratullayeva/mubinanusratullayeva/assets/123224054/e515d6f9-ac1f-4af6-a899-1cf98c0e4206)        ![image](https://github.com/mubinanusratullayeva/mubinanusratullayeva/assets/123224054/5bbcc428-91c2-4f24-b5f8-7a02ffdfbe39)
-
-
 
 follow me on facebook: https://www.facebook.com/profile.php?id=61550518511906
 
